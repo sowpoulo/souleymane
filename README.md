@@ -19,7 +19,7 @@ Bienvenue sur mon GitHub ! Passionné par le **développement web** et le **réf
 💼 **Objectif** : Collaborer avec des entreprises et agences qui souhaitent renforcer leur **présence digitale**, améliorer leur **visibilité en ligne**, et obtenir des **résultats concrets**.
 
 📫 **Me contacter** :  
-[LinkedIn](https://www.linkedin.com/in/souleymane-sow-49a2481b6/) | Email : *à ajouter ici*
+[LinkedIn](https://www.linkedin.com/in/souleymane-sow-49a2481b6/) | Email : *souleyramatoulaye@gmail.com*
 
 ---
 
